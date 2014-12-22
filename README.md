@@ -32,376 +32,396 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The times, places, and persons of the holie Scripture. Otherwise entituled, The generall vievv of th
+
+1. TO THE RIGHT WORSHIPFVLL SIR IOHN Brograue Knight, his Maieſties Atturney generall of the Duchy of Lancaſter.
+
+1. THE AVTHORS EPISTLE TO THE CHRIſtian Reader,
+
 #####Body#####
 
-1. Our God.
+1. A GENERALL VIEW OF THE HOLY SCRIPTVRES.
 
-1. Iehouah our God, Iehouah is one.
+    _ Our God.
 
-1. And firſt for the Elect.
-EPHESIANS 1.10.❧ That in the fulneſſe of time, all ſhould be brought vnder one head.FVlneſse of timeIOHN. 1.❧ He was the Light, and that Light was the Life of man.LIfe and Light is not here carnally m
-1. Now followeth Adams creation.
+    _ Iehouah our God, Iehouah is one.
 
-1. Firſt for the time of his Creation.
+1. God hath choſen vs in Chriſt, before the foundation of the world, &c.
 
-1. Now for the day of Adams fall.
+    _ And firſt for the Elect.
+EPHESIANS 1.10.❧ That in the fulneſſe of time, all ſhould be brought vnder one head.FVlneſse of time
+1. The Treatiſe of Time.
+IOHN. 1.❧ He was the Light, and that Light was the Life of man.LIfe and Light is not here carnally m
+    _ Now followeth Adams creation.
 
-1. Now compare Chriſt with Adam.
+1. ❧ Now follow their liues and deaths in particular, and firſt for Adam.
 
-1. 130. Seth borne ge. 5. when Adam is 130. yeares old.
+    _ Firſt for the time of his Creation.
 
-1. Now compare him with Chriſt, thus.
+    _ Now for the day of Adams fall.
 
-1. 105. Enoſh borne. In theſe numbers, you haue 10. multiplied by 10. and 5. which is the number of the letters of Iehouah.
+    _ Now compare Chriſt with Adam.
 
-1. 90. Kenan borne.
+    _ 130. Seth borne ge. 5. when Adam is 130. yeares old.
 
-1. 70. Mahalaleel borne. You haue in this number ten ſeuens, or ſeuen multiplied by ten, which is ſeuentie: which is the number of his natiuitie, wherein you haue a ſweet reſemblance of the creation: of which number many excellent things are to be ſpoken, which I will handle afterwards.
+    _ Now compare him with Chriſt, thus.
 
-1. 65. Iared borne. For this number 65. it is the halfe of 130. His name ſignifieth Lowlie or meeke, he was 162. yeeres old before he married, becauſe at that time he had knowledge of the flood that it ſhould come. Therefore hee conſecrated his ſonne to God.
+    _ 105. Enoſh borne. In theſe numbers, you haue 10. multiplied by 10. and 5. which is the number of the letters of Iehouah.
 
-1. 162. Henoch borne.
+    _ 90. Kenan borne.
 
-1. 187. Lamech borne.
+    _ 70. Mahalaleel borne. You haue in this number ten ſeuens, or ſeuen multiplied by ten, which is ſeuentie: which is the number of his natiuitie, wherein you haue a ſweet reſemblance of the creation: of which number many excellent things are to be ſpoken, which I will handle afterwards.
 
-1. Compare him with Chriſt.
+    _ 65. Iared borne. For this number 65. it is the halfe of 130. His name ſignifieth Lowlie or meeke, he was 162. yeeres old before he married, becauſe at that time he had knowledge of the flood that it ſhould come. Therefore hee conſecrated his ſonne to God.
 
-1. 56. Adam dieth.
+    _ 162. Henoch borne.
 
-1. Now compare him with Chriſt.
+    _ 187. Lamech borne.
 
-1. 1056. 182. Noah borne.
+    _ Compare him with Chriſt.
 
-1. Compare him with Chriſt.
+    _ 56. Adam dieth.
 
-1. 480. 120. Yeres begin Gen. 6.
+    _ Now compare him with Chriſt.
 
-1. 120. Yeares begin, Ge. 6. In which the Spirit of Chriſt preached while the Arke was in making.
+    _ 1056. 182. Noah borne.
 
-1. Iaphet borne.
+    _ Compare him with Chriſt.
 
-1. Sem borne.
+    _ 480. 120. Yeres begin Gen. 6.
 
-1. 93. Lamech died
+    _ 120. Yeares begin, Ge. 6. In which the Spirit of Chriſt preached while the Arke was in making.
 
-1. 98. Methuſhelah dieth
+    _ Iaphet borne.
 
-1. The floud is brought vpon the olde world, &c.
+    _ Sem borne.
 
-1. And firſt for the Arke.
+    _ 93. Lamech died
 
-1. Now compare Chriſt and the Arke together.
+    _ 98. Methuſhelah dieth
 
-1. Hebrews 11. By faith Noah prepared the Arke to the ſauing of his houſhold.
+    _ The floud is brought vpon the olde world, &c.
 
-1. ❧ The time of the continuance of the Flood, is thus deſcribed.
+    _ And firſt for the Arke.
 
-1. ❧ NOW FOLLOWETH THE Fathers after the Flood, whoſe Storie containeth vnto the promiſe giuen vnto Abraham, 427 yeeres.
+    _ Now compare Chriſt and the Arke together.
 
-1. After the flood.
+    _ Hebrews 11. By faith Noah prepared the Arke to the ſauing of his houſhold.
 
-1. Compare Noah with Adam, and you ſhall ſee that Noah is another Adam.
+    _ ❧ The time of the continuance of the Flood, is thus deſcribed.
+❧ NOW FOLLOWETH THE Fathers after the Flood, whoſe Storie containeth vnto the promiſe giuen vnto Abr
+    _ ❧ NOW FOLLOWETH THE Fathers after the Flood, whoſe Storie containeth vnto the promiſe giuen vnto Abraham, 427 yeeres.
 
-1. And firſt for Cham.
+    _ After the flood.
 
-1. Now followeth for Iaphet.
+    _ Compare Noah with Adam, and you ſhall ſee that Noah is another Adam.
 
-1. Now for Sem.
+    _ And firſt for Cham.
 
-1. 100. Arphachſad borne.
+    _ Now followeth for Iaphet.
 
-1. Shelah borne.
+    _ Now for Sem.
 
-1. 1757. Peleg borne.
+    _ 100. Arphachſad borne.
 
-1. 1787. Regu. borne,Euill.1819. Sarug. borne,Bough or Plant.1849. Nachor borne,Drie.1878. Terah borne,Smelling.
+    _ Shelah borne.
 
-1. 1996. Peleg. died, being 229. yeeres old.
+    _ 1757. Peleg borne.
 
-1. 1997. Nachor died, being 148 yeares old.
+    _ 1787. Regu. borne,Euill.1819. Sarug. borne,Bough or Plant.1849. Nachor borne,Drie.1878. Terah borne,Smelling.
 
-1. 2006. Noah died, being 950 yeares old.
+    _ 1996. Peleg. died, being 229. yeeres old.
 
-1. 2008. Abram Borne.
+    _ 1997. Nachor died, being 148 yeares old.
 
-1. Of Terah his age when he begat Abram.
+    _ 2006. Noah died, being 950 yeares old.
 
-1. 2018. Sara borne.
+    _ 2008. Abram Borne.
 
-1. The promiſe is giuen to Abraham.
+    _ Of Terah his age when he begat Abram.
 
-1. 2090. Melchiſedech King of Salem, A figure of the Sonne of God, meeteth Abraham.
+    _ 2018. Sara borne.
 
-1. 2094. Iſmael borne.
+    _ The promiſe is giuen to Abraham.
 
-1. 2096. Arphachſad died, being 438. yeere old. Gen. 11.
+    _ 2090. Melchiſedech King of Salem, A figure of the Sonne of God, meeteth Abraham.
 
-1. 2100. Iſaack borne. Gen. 21.
+    _ 2094. Iſmael borne.
 
-1. 2113
+    _ 2096. Arphachſad died, being 438. yeere old. Gen. 11.
+
+    _ 2100. Iſaack borne. Gen. 21.
+
+    _ 2113
 
 Iſmael, & Hagar, are expelled Abrahams houſe. Gen. 16.
 
-1. 2126. Sale died. Gen. 11. being 514. yeeres olde.
+    _ 2126. Sale died. Gen. 11. being 514. yeeres olde.
 
-1. Compare Iſaack with Chriſt.
+    _ Compare Iſaack with Chriſt.
 
-1. 2145. Sara died
+    _ 2145. Sara died
 
-1. 2158. Sem died. Gen. 11.
+    _ 2158. Sem died. Gen. 11.
 
-1. 2160
+    _ 2160
 Eſau, and Iacob, borne, Gen. 25.
 
-1. 2183. Abraham died. Gen. 25.
+    _ 2183. Abraham died. Gen. 25.
 
-1. 2188. Heber died. Gen. 11.
+    _ 2188. Heber died. Gen. 11.
 
-1. 2231. Iſmael died, being 137. yeares old.
+    _ 2231. Iſmael died, being 137. yeares old.
 
-1. 2245. Iacob goeth to Laban. Gen. 28.
+    _ 2245. Iacob goeth to Laban. Gen. 28.
 
-1. He ſeeth a Ladder, &c.
+    _ He ſeeth a Ladder, &c.
 
-1. 2260. Fourteen yeres after, Ioſeph is borne,
+    _ 2260. Fourteen yeres after, Ioſeph is borne,
 
-1. Iuda borne.
+    _ Iuda borne.
 
-1. 2264. Iacob goeth from Laban. Gen. 30.
+    _ 2264. Iacob goeth from Laban. Gen. 30.
 
-1. 2276. Ioſeph is ſold into Egypit when he is 17. yeeres old: ſo long was he nouriſhed at home of Iacob.
+    _ 2276. Ioſeph is ſold into Egypit when he is 17. yeeres old: ſo long was he nouriſhed at home of Iacob.
 
-1. 2280. Er and Onan died. Gen. 38.
+    _ 2280. Er and Onan died. Gen. 38.
 
-1. 2288. Iſaack died. Gen. 35. being 180. yeeres old.
+    _ 2288. Iſaack died. Gen. 35. being 180. yeeres old.
 
-1. Ezrom. borne. of him nothing is ſpoken.
+    _ Ezrom. borne. of him nothing is ſpoken.
 
-1. 2298. Iacob goeth into Egypt, Gen. 47. Hee is nouriſhed of Ioſeph 17. yeeres..
+    _ 2298. Iacob goeth into Egypt, Gen. 47. Hee is nouriſhed of Ioſeph 17. yeeres..
 
-1. This famine ouer all the land of Canaan, may appeare to be a puniſhment on Iacobs familie, for ſelling Ioſeph into Egypt.
+    _ This famine ouer all the land of Canaan, may appeare to be a puniſhment on Iacobs familie, for ſelling Ioſeph into Egypt.
 
-1. 2315. Iacob died in Egypt &c. Gen. 49.
+    _ 2315. Iacob died in Egypt &c. Gen. 49.
 
-1. Now let vs compare the iourneys of Abraham, Iacob, Iacobs ſonnes, and Chriſt together.
+    _ Now let vs compare the iourneys of Abraham, Iacob, Iacobs ſonnes, and Chriſt together.
 
-1. Now followeth his will. Gen. 49.
+    _ Now followeth his will. Gen. 49.
 
-1. 2369. Ioſeph died, Gen. 50. being One hundred and ten yeares old.
+    _ 2369. Ioſeph died, Gen. 50. being One hundred and ten yeares old.
 
-1. The next circumſtance is, of what kindred he is.
+1. Here beginneth Iobs Storie.
+
+    _ The next circumſtance is, of what kindred he is.
 ELihu, whome God approoueth, is of Aram by Milcah, who hath Bethuel, God is riſen, the Father of Reb
-1. Now we come to the queſtion and the ſumme of the Booke.
+    _ Now we come to the queſtion and the ſumme of the Booke.
 
-1. Now follow two Repliers, Elihu, and God.
+    _ Now follow two Repliers, Elihu, and God.
 
-1. 2433. Moſes borne.
+    _ 2433. Moſes borne.
 
-1. Iochebal ſignifieth the glory of God. Amram, High.
+    _ Iochebal ſignifieth the glory of God. Amram, High.
 
-1. Pharaoh is plagued with Ten ſeuerall Plagues.
+    _ Pharaoh is plagued with Ten ſeuerall Plagues.
 
-1. The next thing to be handled, is the giuing of the Law.
+1. Now follovveth the deliuerance out of Egipt.
 
-1. God deliuereth the Law in this ſort.
+    _ The next thing to be handled, is the giuing of the Law.
 
-1. Now followeth to be handled, the ſtandings in the Wilderneſſe.
+    _ God deliuereth the Law in this ſort.
 
-1. 42 Of Omri Sonnes ſlaine.
+    _ Now followeth to be handled, the ſtandings in the Wilderneſſe.
+
+    _ 42 Of Omri Sonnes ſlaine.
 42 Children deſtroyed by Beares. 42 Generations of Chriſts kindred from Abraham.
 
-1. Now follow the Standings.
+    _ Now follow the Standings.
 
-1. 2554. Moſes died, Deut. 34. being One hundred and Twenty yeres old.
+    _ 2554. Moſes died, Deut. 34. being One hundred and Twenty yeres old.
 
-1. Moſes was a figure of Chriſt.
+    _ Moſes was a figure of Chriſt.
 
-1. 2555. Ioſhua ruleth Seuenteene yeares. His name was altered by Moſes to Ieſus, becauſe hee was to be a figure of Ieſus Chriſt. He with Caleb encouraged the people, when the other ten Tribes miſbeleeued when they were ſent to ſpie the Land.
+    _ 2555. Ioſhua ruleth Seuenteene yeares. His name was altered by Moſes to Ieſus, becauſe hee was to be a figure of Ieſus Chriſt. He with Caleb encouraged the people, when the other ten Tribes miſbeleeued when they were ſent to ſpie the Land.
 
-1. Now for his name Ieſus.
+    _ Now for his name Ieſus.
 
-1. Now compare Ieſus with Ieſus.
+    _ Now compare Ieſus with Ieſus.
 
-1. If Ieſus had ſetled the people in reſt, &c.
+    _ If Ieſus had ſetled the people in reſt, &c.
 
-1. Now followeth the diuiding of the Land; which is particularly handled in Ioſhua. 15, 16, 17, 18, 19.
+    _ Now followeth the diuiding of the Land; which is particularly handled in Ioſhua. 15, 16, 17, 18, 19.
 
-1. 2570. Ioſua, or Ieſus dieth, being One hundred and Ten yeares old: anſwerable to Ioſeph, who died being One hundred and ten yeares old.
+    _ 2570. Ioſua, or Ieſus dieth, being One hundred and Ten yeares old: anſwerable to Ioſeph, who died being One hundred and ten yeares old.
 
-1. 2571. Othoniel of the tribe of Iuda, is the Firſt, to ſhew that they ſhould looke for their deliuerer, which ſhould end all the viſions and propheſies, and perfecteth all righteouſneſse, to bee of Iuda.
+1. ❧ Now followeth the Storie of the Iudges.
 
-1. 2603. Chuſan oppreſſeth Eight yeares.
+    _ 2571. Othoniel of the tribe of Iuda, is the Firſt, to ſhew that they ſhould looke for their deliuerer, which ſhould end all the viſions and propheſies, and perfecteth all righteouſneſse, to bee of Iuda.
 
-1. Booz of Rahab Borne.
+    _ 2603. Chuſan oppreſſeth Eight yeares.
 
-1. 2610. The firſt Iubilee.
+    _ Booz of Rahab Borne.
 
-1. 2611. Aod Eightie yeares.
+    _ 2610. The firſt Iubilee.
 
-1. 2671. Eglon oppreſſeth Eighteen yeares. Iudg. 3.
+    _ 2611. Aod Eightie yeares.
 
-1. 2691. Baracke and Deborah Fortie yeares. Baracke was of Nephtali, and Deborah of Ephraim.
+    _ 2671. Eglon oppreſſeth Eighteen yeares. Iudg. 3.
 
-1. 2711. Siſera oppreſſeth Twentie yeares. Obed of Ruth.
+    _ 2691. Baracke and Deborah Fortie yeares. Baracke was of Nephtali, and Deborah of Ephraim.
 
-1. 2731. Gedeon Fortie yeares. Gedeon, Baracke, Sampſon, Iephte, Dauid, Samuel, and the Prophets obtained promiſes, but receiued not the promiſe. Heb. 11.
+    _ 2711. Siſera oppreſſeth Twentie yeares. Obed of Ruth.
 
-1. Madian oppreſſeth Seuen yeares.
+    _ 2731. Gedeon Fortie yeares. Gedeon, Baracke, Sampſon, Iephte, Dauid, Samuel, and the Prophets obtained promiſes, but receiued not the promiſe. Heb. 11.
 
-1. 2771. Abimelech Three yeares, the Sonne of Gedeon, of the Tribe of Ephraim.
+    _ Madian oppreſſeth Seuen yeares.
 
-1. Ieſſai borne.
+    _ 2771. Abimelech Three yeares, the Sonne of Gedeon, of the Tribe of Ephraim.
 
-1. Now compare him with Chriſt.
+    _ Ieſſai borne.
 
-1. 2870. Heli of the Tribe of Leui, iudged Iſrael Fortie yeares.
+    _ Now compare him with Chriſt.
 
-1. Now followeth ſomewhat againe in generall.
+    _ 2870. Heli of the Tribe of Leui, iudged Iſrael Fortie yeares.
 
-1. Now let vs returne to the Oppreſſors.
+    _ Now followeth ſomewhat againe in generall.
 
-1. Now for the time of the Iudges gouernment.
+    _ Now let vs returne to the Oppreſſors.
 
-1. THE NEXT VVHICH IS TO be handled, are Samuel, and Saul; and firſt for Samuel.
+    _ Now for the time of the Iudges gouernment.
+THE NEXT VVHICH IS TO be handled, are Samuel, and Saul; and firſt for Samuel.The Seuenth Iubilee.HEr
+    _ THE NEXT VVHICH IS TO be handled, are Samuel, and Saul; and firſt for Samuel.
 
-1. Samuel and Saul Fortie yeares.
+    _ Samuel and Saul Fortie yeares.
 
-1. Now for the place.
+    _ Now for the place.
 
-1. Now followeth the circumſtance of his perſon.
+    _ Now followeth the circumſtance of his perſon.
 
-1. Now let vs conſider the purpoſe of Samuel in erecting the Kingdome.
+    _ Now let vs conſider the purpoſe of Samuel in erecting the Kingdome.
 
-1. Now we haue diuers compariſons between Samuel and Moſes.
+    _ Now we haue diuers compariſons between Samuel and Moſes.
 
-1. Now followeth Sauls Storie.
+    _ Now followeth Sauls Storie.
 
-1. Now for his Faults.
+    _ Now for his Faults.
 
-1. Dauid, borne in Bethlehem,
+    _ Dauid, borne in Bethlehem,
 
-1. Dauid raigneth Forty yeres; Seuen yeares and a halfe in Hebron, and Thirtie two yeares and a halfe in Ieruſalem.
+    _ Dauid raigneth Forty yeres; Seuen yeares and a halfe in Hebron, and Thirtie two yeares and a halfe in Ieruſalem.
 
-1. Now for his Victories.
+    _ Now for his Victories.
 
-1. Now let vs conſider him in his learned affaires.
+    _ Now let vs conſider him in his learned affaires.
 ABenezra an ancient Iew, mooueth a doubt concerning Dauids Organes and Inſtruments of Muſicke. It ma
-1. Salomon borne.
+    _ Salomon borne.
 
-1. Salomon raigneth Fortie yeares.
+    _ Salomon raigneth Fortie yeares.
 
-1. Something muſt be ſaid of the annointing of Kings.
+    _ Something muſt be ſaid of the annointing of Kings.
 
-1. Temple built foure Hundred and Eightie yeares after the Children of Iſrael came out of Egipt. 1. King. 6.
+    _ Temple built foure Hundred and Eightie yeares after the Children of Iſrael came out of Egipt. 1. King. 6.
 
-1. In the Eleauenth yeare of Salomon, he finiſhed the Temple.
+    _ In the Eleauenth yeare of Salomon, he finiſhed the Temple.
 
-1. Now concerning his felicitie.
+    _ Now concerning his felicitie.
 
-1. Now follow the particulars.
+    _ Now follow the particulars.
 
-1. Concerning the Song of Songs.
+    _ Concerning the Song of Songs.
 
-1. Kings of Iuda three Hundred and Ninetie yeares before the burning of the Temple by Nebuchadnetzar.
+    _ Kings of Iuda three Hundred and Ninetie yeares before the burning of the Temple by Nebuchadnetzar.
 
-1. Roboam Seuenteene yeares.
+    _ Roboam Seuenteene yeares.
 
-1. Abiam Three yeares.
+    _ Abiam Three yeares.
 
-1. Aſa ſucceedeth him, and raigneth One and Fortie yeares.
+    _ Aſa ſucceedeth him, and raigneth One and Fortie yeares.
 
-1. 3889. Ioſaphat Twentie and fiue yeares.
+    _ 3889. Ioſaphat Twentie and fiue yeares.
 
-1. 3110. Ioram Eight yeares.
+    _ 3110. Ioram Eight yeares.
 
-1. 3117. Ochoſias One yeare.
+    _ 3117. Ochoſias One yeare.
 
-1. 3118. Athalia Sixe yeares.
+    _ 3118. Athalia Sixe yeares.
 
-1. 3124. Ioas Fortie yeares.
+    _ 3124. Ioas Fortie yeares.
 
-1. 3161. Amaſias, Nine and Twentie yeares.
+    _ 3161. Amaſias, Nine and Twentie yeares.
 
-1. 3201. Azarias, two and Fiftie yeares.
+    _ 3201. Azarias, two and Fiftie yeares.
 
-1. 3253. Iotham, Sixteene yeares.
+    _ 3253. Iotham, Sixteene yeares.
 
-1. 3268. Achaz, Sixteene yeares.
+    _ 3268. Achaz, Sixteene yeares.
 
-1. 3281. Ezechias, nine and Twentie yeres. A new Heber.
+    _ 3281. Ezechias, nine and Twentie yeres. A new Heber.
 
-1. 3311. Manaſſes his Sonne raigneth 55. yeres, being wonderfull wicked.
+    _ 3311. Manaſſes his Sonne raigneth 55. yeres, being wonderfull wicked.
 
-1. 3366. Amon his Sonne raigned Two yeares.
+    _ 3366. Amon his Sonne raigned Two yeares.
 
-1. 3399. Ioakim, Eleauen yeares.
+    _ 3399. Ioakim, Eleauen yeares.
 
-1. The next in order of time to be handled, is Nebuchadnetzar, and the Storie of the Captiuitie: but becauſe before I could not conueniently handle the Kings of Iſrael; before I come to the captiuitie, I will heere handle their Stories in generall termes.
+    _ The next in order of time to be handled, is Nebuchadnetzar, and the Storie of the Captiuitie: but becauſe before I could not conueniently handle the Kings of Iſrael; before I come to the captiuitie, I will heere handle their Stories in generall termes.
 
-1. The Prophet Oſeas expreſſeth their ſtate in this ſort. Cap. 1.
+    _ The Prophet Oſeas expreſſeth their ſtate in this ſort. Cap. 1.
 
-1. Now a little for the particulars.
+    _ Now a little for the particulars.
 
-1. Babylon the Lion. 3401. Nebuchadnetzar raigned 45. yeares.
+    _ Babylon the Lion. 3401. Nebuchadnetzar raigned 45. yeares.
 
-1. 3409. Ioachin, three moneths.
+    _ 3409. Ioachin, three moneths.
 
-1. 3410. Zedechias, Eleauen yeares.
+    _ 3410. Zedechias, Eleauen yeares.
 
-1. 3414. Ezechiel prophecieth.
+    _ 3414. Ezechiel prophecieth.
 
-1. 3419. Temple burnt.
+    _ 3419. Temple burnt.
 
-1. 3431. Ezechiel ſeeth a Viſion of the reſtoring of the Temple.
+    _ 3431. Ezechiel ſeeth a Viſion of the reſtoring of the Temple.
 
-1. 3446. Euilmerodach, two and Twentie yeres.
+    _ 3446. Euilmerodach, two and Twentie yeres.
 
-1. 3469. Baltazar, Three yeares.
+    _ 3469. Baltazar, Three yeares.
 
-1. Daniels ſpeach is bold, yet reuerent.
+    _ Daniels ſpeach is bold, yet reuerent.
 
-1. ❧ Now this is the writing that he hath written.
+    _ ❧ Now this is the writing that he hath written.
 
-1. Now followeth to be handled the ouerthrow of Babel, and the prophecies which concerne the ſame, and by whome the deſtruction is prophecied.
+    _ Now followeth to be handled the ouerthrow of Babel, and the prophecies which concerne the ſame, and by whome the deſtruction is prophecied.
 
-1. Now followeth the Prophecies of the destruction thereof.
+    _ Now followeth the Prophecies of the destruction thereof.
 
-1. Now compare the impieties of Rome, or miſticall Babylon, with theſe times, and you ſhall find them the very ſame, and therefore the Holy Ghoſt layeth downe her deſtruction, as the destruction of Babel.
+    _ Now compare the impieties of Rome, or miſticall Babylon, with theſe times, and you ſhall find them the very ſame, and therefore the Holy Ghoſt layeth downe her deſtruction, as the destruction of Babel.
 
-1. Now followeth to be handled the Perſians Storie particularly. And firſt for Cyrus.
+    _ Now followeth to be handled the Perſians Storie particularly. And firſt for Cyrus.
 
-1. 2519. The Temple built in the end of the ſeauenth ſeauen.
+    _ 2519. The Temple built in the end of the ſeauenth ſeauen.
 IT is ſayd, Dan. 11. Behold, there ſhall stand vp three Kings in Perſia, and the Fourth ſhall be far
-1. 3591. Alexander the great, raigneth Twelue yeares.
+1. ❧ Here beginneth the Kingdome of the Grecians to flouriſh.
 
-1. Let vs returne to Alexander.
+    _ 3591. Alexander the great, raigneth Twelue yeares.
 
-1. 3620. Seleucus Nicator, one of Alexanders Succeſſors.
+    _ Let vs returne to Alexander.
 
-1. 3663. Antiochus Soter, the ſecond Horne.
+    _ 3620. Seleucus Nicator, one of Alexanders Succeſſors.
 
-1. 3663. Antiochus Theos, the third Horne.
+    _ 3663. Antiochus Soter, the ſecond Horne.
 
-1. 3680. Seleucus Callinicus, the fourth Horne.
+    _ 3663. Antiochus Theos, the third Horne.
 
-1. Kings of Leuj.
+    _ 3680. Seleucus Callinicus, the fourth Horne.
 
-1. 3883. Iulius Caeſar, Fiue yeares.
+    _ Kings of Leuj.
 
-1. 3887. Auguſtus, Six and fiftie yeares.
+    _ 3883. Iulius Caeſar, Fiue yeares.
 
-1. Marie, borne.
+    _ 3887. Auguſtus, Six and fiftie yeares.
 
-1. Elias, Iohn Baptiſt borne.
+    _ Marie, borne.
 
-1. 3928. Ieſus is borne.
+    _ Elias, Iohn Baptiſt borne.
+
+    _ 3928. Ieſus is borne.
 SAint Mathew reckoning the kindred of Chriſt, brings them down but from Abraham, to make the number 
-1. The key of all Chronicles is taught in Luke 3. Where he compareth the age of Chriſt with the Romane Empire, whereby the writers of Chronicles are taught to compare the heathen hiſtories with the Bible, without which place they ſhould hardly haue beene compared ſo certaine as now they may.
+    _ The key of all Chronicles is taught in Luke 3. Where he compareth the age of Chriſt with the Romane Empire, whereby the writers of Chronicles are taught to compare the heathen hiſtories with the Bible, without which place they ſhould hardly haue beene compared ſo certaine as now they may.
 
-1. 3956. Christ baptized.
+    _ 3956. Christ baptized.
 
-1. 3960. Ieſus Chriſt the King, the moſt holy, is betrayed by Iudas Iſcarioth, that is, which falleth away for reward.
+    _ 3960. Ieſus Chriſt the King, the moſt holy, is betrayed by Iudas Iſcarioth, that is, which falleth away for reward.
 
 **Types of content**
 
